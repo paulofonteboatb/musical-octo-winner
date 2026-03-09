@@ -4,6 +4,7 @@ Nome de cada integrante: Luiz Teixeira
                          Sara Márcia 
                          Lucas couto
                          Sabrina Vilefort
+                         Paulo Antonio 
 
 Descrição: Foi entregue as respostas das atividades anteriores. tropa do maneiro 
 
